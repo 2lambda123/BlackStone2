@@ -5,7 +5,7 @@
 
 My website: https://microjoan.com <br>
 My blog: https://darkhacking.es/ <br>
-Use and installation video: https://youtu.be/qasPlaaYxiU <br>
+Use and installation video: https://youtu.be/3Z0lts176sE <br>
 Buy me a coffee: https://www.buymeacoffee.com/microjoan
 
 </div>
